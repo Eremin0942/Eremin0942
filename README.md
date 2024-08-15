@@ -3,4 +3,6 @@
 
 ## i am Eremin 
 
-### Mainly make minecraft server plugins
+
+
+![1366_2000](https://i.postimg.cc/MHdCJmyK/windy-removebg-preview.png)
